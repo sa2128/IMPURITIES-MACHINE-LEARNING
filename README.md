@@ -1,0 +1,1 @@
+Hi👋, I’m Sakinat Damare. I’m interested in geoanalytics and ML. I’m also currently learning data sciences. Looking to collaborate on data science application in subsurface hydrogen storage, CCS and geothermal reservoir modelling. You can reach out to me on linkedIn via this link: www.linkedin.com/in/sakinatdamareabubakar.
